@@ -1,2 +1,2 @@
 # Hello-World
-Newbie here creating my first repository. #stoked. #basic. 
+Newbie here making revisions to my first repository. #superstoked. #stillbasic
